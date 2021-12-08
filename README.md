@@ -1,2 +1,0 @@
-# BUYUK_VERI
-
